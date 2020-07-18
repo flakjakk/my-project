@@ -1,0 +1,6 @@
+site_name: Kidgell Stories
+nav:
+    - Home: index.md
+    - About: about.md
+    - Background: background.md
+    - Suggested Topics: suggestions.md
