@@ -4,7 +4,7 @@ Welcome to this site. If you are here by [happy] accident please take a look aro
 
 The Bunch!
 
-![](/assets/images/photo-2-cropped.jpg)
+![The Kids!](/assets/images/photo-2-cropped.jpg)
 
 ## Contact
 
