@@ -12,7 +12,7 @@ Don’t remember this part!
 
 Oakland’s Rd.
 
-Mom rescuing Deidre and myself from the pine tree. In her dress. Then changing our minds with a ‘switch’.
+Mom rescuing Deidre and myself from the pine tree. In her dress. While pregnant! Then changing our minds with a ‘switch’ 
 
 Pulling wallpaper off under the bed. Mom and dad finding out later.
 
@@ -48,6 +48,36 @@ Benoni
 
 Start of school - Tom Newby - Meh!
 
+### Geoff
+
+First memory getting stung by centipede thing in Benoni driveway 
+
+Dad smoking 
+
+Running through window with cowboy hat over face - first miracle as didn't get  a scratch 
+
+Ed: The mower-blade connecting with a bolt hidden in the grass and sending it through the one bedroom window. Some time later Geoff was running in the yard with his cowboy hat over his face and he ran slap-bang into the same window, shattering it. I don't know how he wasn't cut by the glass. A Miracle! 
+
+Biltong hanging in garage 
+
+Cheryl being small  - eating sand 
+
+
+### Ed
+
+The jungle-gym falling on me 
+
+The maid and the shoes 
+
+Dad driving over a scooter and thinking it was one of us kids 
+
+Learning to ride a bicycle and falling into the cactus 
+
+Having to catch the bus home, losing the 5c bus-fare and walking all the way home 
+
+Dad making us wooden houses painted white with red roofs 
+
+
 ## 71
 
 July(?) - moving to the training college 
@@ -60,153 +90,120 @@ Cocoa in winter every lunch break. No sugar.
 
 Getting bitten for the first time
 
-----
+### Geoff
 
-## 72 - July
+Andrew Cooper making shields and painting them 
 
-### Kimberley
+Mini Cooper green and cool 
 
-Tar-melting heat, freezing cold in winter 
+Debbie cutting off her finger in uncle Ben's steel cutter 
 
-Kimberley Prep
+Getting a hiding with a high heel from Lyn Tyler's wife 
 
-## 73
+Shooting out the light bulb with my camera water pistol 
 
-Kimberly Boys Junior School 
+Uncle Ben chasing the guys that stole his kombi - caught them at the traffic lights (and beating them up) 
 
-## 74
-
-The Big Hole 
-
-### General
-
-The funfair
-
-The library
-
-The swimming pool
+The pet chicken in the dolls house 
 
 ----
+
+## 72 - July to 74 Dec
+
+Kimberley - see [doc](kimberley.md)
+
+
+
+---
 
 ## 75
 
-East London
 
-### 13 Porter Street (House 1)
+### East London - see [doc](eastlondon.md)
 
-Visiting uncle Mike on his ship and getting a tour through the engine-room.
-
-Enjoying a tour of an SA Navy frigate. Impressive!
-
-Going down to the theatre at Orient Beach on Sunday nights to watch the orchestra 
-
-Spooky the cat disappearing when we lived at 13 Porter Street then finding us again when we stayed at the Maris Stella.
-
-Chips at the Kennaway 
-
-### Selborne Primary 
-
-Band
-
-Piano lessons 
-
-‘Plip, plop’
-
-The tuck shop
-
-### General
-
-Jamming as a band on donated instruments then getting upset because dad sold them (but we needed the money!)
-
-### Moore Street (House 2)
-
-Don't remember specifics
-
-### Maris Stella Convent (House 3)
-
-Quigney Baptist Church
-
-Meeting Dr. Chris Barnard
-
-Puppet shows
-
-Sewage problems 
-
-Go-carts
-
-Model-building - planes and warships 
-
-Reading war comics (lots of)
 
 ----
 
 ## 76
 
-Johannesburg 
+### Johannesburg 
 
-### Franklin D. Roosevelt
 
-### Firlands Boys Home 
+#### Franklin D. Roosevelt
 
-Judo
+Hiawatha 
 
-Jo’burg One
+Mr. Green 
 
-YP and the band
 
-### Simmonds Street
+#### Firlands Boys Home 
 
-Chores
+Judo 
 
-Getting the pellet guns 
+Jo’burg One 
+
+YP and the band 
+
+Simmonds Street 
+
+Getting the pellet guns
+
+Chores 
+
+
 
 ----
 
 ## 77
 
-### Paarl
+Paarl 
 
-### Muldersvlei
+Muldersvlei 
 
-Kleilat and the train
+Pellet guns 
 
-The winery over the road 
+Herding the cows and getting milk really cheaply [10c a litre, I think] 
 
-### Paarl Boys High
+The rinkhals 
 
-### General
+Getting on the bus in the dark at mid-winter [mud, raining, cold]
 
-Cape Town Citadel
+Kleilat and the train 
+
+Playing down at the dam 
+
+Braaing meat using paper only 
+
+Building rafts [and losing galoshes in the sticky mud] 
+
+The winery over the road [irony] 
+
+Cheryl breaking a leg 
+
+The cows: Nos. 34 and 43. 
+
+Paarl Boys High 
+
+
+### General 
+
+Rugby in the rain...with bricks! 
+
+Cape Town Corps 
+
+Double-feature movies with Chris Lovick 
+
+----
+
+
+Going through the Karoo on our way from Paarl up to Paddock via the Transkei 
 
 ----
 
 ## 78
 
-### Paddock
+Paddock - see [doc](paddock.md)
 
-#### Houses 1 and 2
-
-Kentucky Fried
-
-#### Port Shepstone High School 
-
-Rugby
-
-Cricket 
-
-Deidre and obstacle courses 
-
-Mr. Greef, Michael van der Merwe and myself
-
-### Chiltley (House 3)
-
-Horse 
-
-Cow and chicken 
-
-Bogey 
-
-Krees 
 
 ----
 
@@ -272,34 +269,12 @@ Nail down the months and divide using them instead of year numbers.
 
 ## General subjects 
 
-### Mpame and Prospect 
+The Pietermaritzburg Kidgells
 
-Card and board games 
+The Animals 
 
-Mncwasa
+Who / when 
 
-Mbolompo
+The Transkei - see [doc](transkei.md)
 
-Fishing 
-
-Prawn pumping 
-
-Philistines 
-
-The Year of the Flood
-
-Golfing
-
-Green pool
-
-Green tent
-
-Collecting drift-wood for the bonfire 
-
-The Buggy 
-
-### The Pietermaritzburg Kidgells
-
-### The Animals 
-
-### Who / when 
+----
