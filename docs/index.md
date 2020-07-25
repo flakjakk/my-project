@@ -4,7 +4,7 @@ Welcome to this site. If you are here by [happy] accident please take a look aro
 
 The Bunch!
 
-<img src="/assets/images/photo-2-cropped.jpg", width=800>
+<img src="/assets/images/photo-2-cropped.jpg", width="800">
 
 ## Contact
 
