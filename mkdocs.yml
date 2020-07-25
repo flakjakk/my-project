@@ -4,3 +4,8 @@ nav:
     - About: about.md
     - Background: background.md
     - Suggested Topics: suggestions.md
+    - East London: eastlondon.md
+    - Kimberley: kimberley.md
+    - Paddock: paddock.md
+    - Transkei: transkei.md
+theme: readthedocs
