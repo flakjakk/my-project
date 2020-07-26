@@ -4,12 +4,13 @@ nav:
     - About: about.md
     - Background: background.md
     - Suggested Topics: suggestions.md
-    - East London: eastlondon.md
-    - Kimberley: kimberley.md
-    - Paddock: paddock.md
-    - Transkei: transkei.md
-theme:
-    name: readthedocs
+    - Places:
+        - East London: eastlondon.md
+        - Kimberley: kimberley.md
+        - Paddock: paddock.md
+        - Transkei: transkei.md
+theme: 
+    name: mkdocs
     highlightjs: true
 #	hljs_languages:
 #        - yaml
