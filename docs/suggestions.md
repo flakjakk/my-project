@@ -4,7 +4,10 @@
 
 ## 63-65
 
-Don’t remember this part!
+Don’t remember this part but here's a pic from 1963!
+
+![Mom and the twins](assets/images/Merle-and-twins-1963-exp-01.jpg)
+
 
 ----
 
