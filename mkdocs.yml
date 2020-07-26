@@ -8,4 +8,10 @@ nav:
     - Kimberley: kimberley.md
     - Paddock: paddock.md
     - Transkei: transkei.md
-theme: readthedocs
+theme:
+    name: readthedocs
+    highlightjs: true
+#	hljs_languages:
+#        - yaml
+#        - rust
+   
