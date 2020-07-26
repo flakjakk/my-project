@@ -51,6 +51,10 @@ Benoni
 
 Start of school - Tom Newby - Meh!
 
+Dad in action...
+
+![Dad teaching the Benoni Corps band!](assets/images/ejk-newsp-24apr70-band training-b.jpg)
+
 ### Geoff
 
 First memory getting stung by centipede thing in Benoni driveway 
@@ -83,7 +87,13 @@ Dad making us wooden houses painted white with red roofs
 
 ## 71
 
-July(?) - moving to the training college 
+Around March / April [??] [see article] - moving to the training college 
+
+![The news](assets/images/ejkmsk-news-22jan71-coll-b.jpg)
+
+**The Trainee Officers**
+
+![Trainee Officers](assets/images/trainee-officers-1971-01b.jpg)
 
 Chris arrives
 
