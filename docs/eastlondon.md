@@ -13,7 +13,7 @@ Spooky the cat disappeared one day - but we saw her again later in the year!
 
 ## Moore Street (House 2)
 
-Close enough! https://goo.gl/maps/EXt1r9kopbPrsxV18  
+Close enough! [](https://goo.gl/maps/EXt1r9kopbPrsxV18)  
 
 Visiting uncle Mike on his ship and getting a tour through the engine-room  
 Enjoying a tour of an SA Navy frigate. Impressive!  
@@ -21,11 +21,11 @@ Enjoying a tour of an SA Navy frigate. Impressive!
 
 ## The Maris Stella Convent (House 3)  
 
-We moved here: https://goo.gl/maps/UQTDawEsjwgYvwsq6 when dad was the pastor at the Quigney Baptist Church: https://goo.gl/maps/ctLDV3VdqwriAAjp6  
+We moved here: [](https://goo.gl/maps/UQTDawEsjwgYvwsq6) when dad was the pastor at the Quigney Baptist Church: [](https://goo.gl/maps/ctLDV3VdqwriAAjp6)  
 
-Front view: https://goo.gl/maps/5vT3WrG7MmwXmSdH8
+Front view: [](https://goo.gl/maps/5vT3WrG7MmwXmSdH8)
 
-Going down to the theatre at Orient Beach (https://goo.gl/maps/hNAAVFjXX2PG3vkEA) on Sunday nights to watch the orchestra  
+Going down to the theatre at Orient Beach [](https://goo.gl/maps/hNAAVFjXX2PG3vkEA) on Sunday nights to watch the orchestra  
 The ship wreck on the beach-front in front of the Kennaway Hotel  
 
 **Chips at the Kennaway**  
