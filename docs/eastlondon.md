@@ -3,7 +3,7 @@
 
 ## 13 Porter Street (House 1)
 
-I think this is it [maybe they renumbered the properties??]: https://goo.gl/maps/EmBLpmnwsoetLHjM7  
+I think this is it [maybe they renumbered the properties??]: <https://goo.gl/maps/EmBLpmnwsoetLHjM7>  
 
 Watching films at the library on Thursday nights [Friday?]  
 The guy who tried to steal mom's bag  
@@ -13,7 +13,7 @@ Spooky the cat disappeared one day - but we saw her again later in the year!
 
 ## Moore Street (House 2)
 
-Close enough! [](https://goo.gl/maps/EXt1r9kopbPrsxV18)  
+Close enough! <https://goo.gl/maps/EXt1r9kopbPrsxV18>  
 
 Visiting uncle Mike on his ship and getting a tour through the engine-room  
 Enjoying a tour of an SA Navy frigate. Impressive!  
@@ -21,16 +21,16 @@ Enjoying a tour of an SA Navy frigate. Impressive!
 
 ## The Maris Stella Convent (House 3)  
 
-We moved here: [](https://goo.gl/maps/UQTDawEsjwgYvwsq6) when dad was the pastor at the Quigney Baptist Church: [](https://goo.gl/maps/ctLDV3VdqwriAAjp6)  
+We moved here: <https://goo.gl/maps/UQTDawEsjwgYvwsq6> when dad was the pastor at the Quigney Baptist Church: <https://goo.gl/maps/ctLDV3VdqwriAAjp6>  
 
-Front view: [](https://goo.gl/maps/5vT3WrG7MmwXmSdH8)
+Front view: <https://goo.gl/maps/5vT3WrG7MmwXmSdH8>
 
-Going down to the theatre at Orient Beach [](https://goo.gl/maps/hNAAVFjXX2PG3vkEA) on Sunday nights to watch the orchestra  
+Going down to the theatre at Orient Beach <https://goo.gl/maps/hNAAVFjXX2PG3vkEA> on Sunday nights to watch the orchestra  
 The ship wreck on the beach-front in front of the Kennaway Hotel  
 
 **Chips at the Kennaway**  
 
-Link: https://goo.gl/maps/iXYUvkq8QrEDRDiE9  
+Link: <https://goo.gl/maps/iXYUvkq8QrEDRDiE9>  
 
 Often, on a Sunday night after the service at Quigney Baptist we would walk down to the beachfront to purchase a pack of chips. We would share these while watching the sea pound the wreck that had run aground in front of the Kennaway Hotel. It was on one of these walks that Spooky the cat, who disappeared when we lived at 13 Porter Street found us again [we were living at the Maris Stella by this time]  
 

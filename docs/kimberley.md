@@ -2,7 +2,7 @@
 
 We arrived in Kimberley in mid 1972 [June - July??]. It was mom and dad's first appointment as Lieutenants straight out of Training College and they were tasked to pastor the Kimberley Corps and manage the attached Men's Home. We lived in the 'manse' at 13 Crossman Road  
 
-Google maps link: https://goo.gl/maps/u4Z9zUeJjgNeBJHP6
+Google maps link: <https://goo.gl/maps/u4Z9zUeJjgNeBJHP6>
 
 
 ## Things to remember
@@ -11,15 +11,15 @@ Tar-melting heat, freezing cold in winter
 
 **Kimberley Preparatory School**  
 
-This is it, as far as I can work out: https://goo.gl/maps/5iCQGgoueku1TRtWA
+This is it, as far as I can work out: <https://goo.gl/maps/5iCQGgoueku1TRtWA>
 
 **Kimberly Boys Junior School**  
 
-Link: https://goo.gl/maps/7qEFRqh1fYF5TkHE9  
+Link: <https://goo.gl/maps/7qEFRqh1fYF5TkHE9>  
 
 **The Big Hole**  
 
-Link: https://goo.gl/maps/FsmepLD4V65LjGUw9  
+Link: <https://goo.gl/maps/FsmepLD4V65LjGUw9>  
 
 The funfair  
 There were war memorials with statues and cannons all over town  
@@ -30,11 +30,11 @@ Visiting the Magersfontein Battlefield with dad
 **The library**  
 Whenever I could I would go up to the local library and read until it closed. I never took books out, just read them there, placing them back in the correct place afterwards  
 
-As far as I can ascertain, this is where the library used to be: https://goo.gl/maps/76FZEZCAGJe2LpYc7  
+As far as I can ascertain, this is where the library used to be: <https://goo.gl/maps/76FZEZCAGJe2LpYc7>  
 
 The Karen Muir swimming pool  
 
-https://goo.gl/maps/fgjdodToigGri3Em8  
+<https://goo.gl/maps/fgjdodToigGri3Em8>  
 
 The Mullers  
 
