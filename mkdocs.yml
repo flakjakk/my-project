@@ -1,7 +1,7 @@
 site_name: Kidgell Stories
 nav:
     - Home: index.md
-    - About: about.md
+#    - About: about.md
     - Background: background.md
     - Suggested Topics: suggestions.md
     - Places:
@@ -12,7 +12,7 @@ nav:
 theme: 
     name: mkdocs
     highlightjs: true
-#	hljs_languages:
+#   hljs_languages:
 #        - yaml
 #        - rust
 use_directory_urls: false

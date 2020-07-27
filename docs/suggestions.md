@@ -29,10 +29,8 @@ Geoff being born - seeing him for the first time.
 
 Springs [??]
 
-Punch and Judy.
-
-Showing Geoff how to make the Hillman go ‘like a rocket’ by putting clods of sand into the petrol tank.
-
+Punch and Judy  
+Showing Geoff how to make the Hillman go ‘like a rocket’ by putting clods of sand into the petrol tank  
 Getting punched by my ‘buddy’ from next door while building tents around the dining room table 
 
 ## 68
@@ -47,7 +45,7 @@ Listening to the first moon landing transmission - July 20 1969.
 
 ## 70 
 
-Benoni
+### Benoni
 
 Start of school - Tom Newby - Meh!
 
@@ -57,31 +55,23 @@ Dad in action...
 
 ### Geoff
 
-First memory getting stung by centipede thing in Benoni driveway 
-
+First memory getting stung by centipede thing in Benoni driveway  
 Dad smoking 
 
-Running through window with cowboy hat over face - first miracle as didn't get  a scratch 
-
+Running through window with cowboy hat over face - first miracle as didn't get  a scratch  
 Ed: The mower-blade connecting with a bolt hidden in the grass and sending it through the one bedroom window. Some time later Geoff was running in the yard with his cowboy hat over his face and he ran slap-bang into the same window, shattering it. I don't know how he wasn't cut by the glass. A Miracle! 
 
-Biltong hanging in garage 
-
+Biltong hanging in garage  
 Cheryl being small  - eating sand 
 
 
 ### Ed
 
-The jungle-gym falling on me 
-
-The maid and the shoes 
-
-Dad driving over a scooter and thinking it was one of us kids 
-
-Learning to ride a bicycle and falling into the cactus 
-
-Having to catch the bus home, losing the 5c bus-fare and walking all the way home 
-
+The jungle-gym falling on me  
+The maid and the shoes  
+Dad driving over a scooter and thinking it was one of us kids  
+Learning to ride a bicycle and falling into the cactus  
+Having to catch the bus home, losing the 5c bus-fare and walking all the way home  
 Dad making us wooden houses painted white with red roofs 
 
 
@@ -95,28 +85,19 @@ Around March / April [??] [see article] - moving to the training college
 
 ![Trainee Officers](assets/images/trainee-officers-1971-01b.jpg)
 
-Chris arrives
-
-Fairview Junior School
-
-Cocoa in winter every lunch break. No sugar.
-
+Chris arrives  
+Fairview Junior School  
+Cocoa in winter every lunch break. No sugar.  
 Getting bitten for the first time
 
 ### Geoff
 
-Andrew Cooper making shields and painting them 
-
-Mini Cooper green and cool 
-
-Debbie cutting off her finger in uncle Ben's steel cutter 
-
-Getting a hiding with a high heel from Lyn Tyler's wife 
-
-Shooting out the light bulb with my camera water pistol 
-
-Uncle Ben chasing the guys that stole his kombi - caught them at the traffic lights (and beating them up) 
-
+Andrew Cooper making shields and painting them  
+Mini Cooper green and cool  
+Debbie cutting off her finger in uncle Ben's steel cutter  
+Getting a hiding with a high heel from Lyn Tyler's wife  
+Shooting out the light bulb with my camera water pistol  
+Uncle Ben chasing the guys that stole his kombi - caught them at the traffic lights (and beating them up)  
 The pet chicken in the dolls house 
 
 ----
@@ -144,23 +125,17 @@ Kimberley - see [doc](kimberley.md)
 
 #### Franklin D. Roosevelt
 
-Hiawatha 
-
+Hiawatha  
 Mr. Green 
 
 
 #### Firlands Boys Home 
 
-Judo 
-
-Jo’burg One 
-
-YP and the band 
-
-Simmonds Street 
-
-Getting the pellet guns
-
+Judo  
+Jo’burg One  
+YP and the band  
+Simmonds Street  
+Getting the pellet guns  
 Chores 
 
 
@@ -169,41 +144,27 @@ Chores
 
 ## 77
 
-Paarl 
+### Paarl 
 
-Muldersvlei 
+#### Muldersvlei 
 
-Pellet guns 
-
-Herding the cows and getting milk really cheaply [10c a litre, I think] 
-
-The rinkhals 
-
-Getting on the bus in the dark at mid-winter [mud, raining, cold]
-
-Kleilat and the train 
-
-Playing down at the dam 
-
-Braaing meat using paper only 
-
-Building rafts [and losing galoshes in the sticky mud] 
-
-The winery over the road [irony] 
-
-Cheryl breaking a leg 
-
-The cows: Nos. 34 and 43. 
-
+Herding the cows and getting milk really cheaply [10c a litre, I think]  
+The rinkhals  
+Getting on the bus in the dark at mid-winter [mud, raining, cold]  
+Kleilat and the train  
+Playing down at the dam  
+Braaing meat using paper only  
+Building rafts [and losing galoshes in the sticky mud]  
+The winery over the road [irony]  
+Cheryl breaking a leg  
+The cows: Nos. 34 and 43  
 Paarl Boys High 
 
 
 ### General 
 
-Rugby in the rain...with bricks! 
-
-Cape Town Corps 
-
+Rugby in the rain...with bricks!  
+Cape Town Corps  
 Double-feature movies with Chris Lovick 
 
 ----
@@ -226,25 +187,20 @@ Moving back up to Johannesburg.
 
 ### Firlands Boys Home 
 
-Scalextric and model trains
-
+Scalextric and model trains  
 Snooker 
 
 ### Roosevelt High School 
 
-Rugby
-
-Athletics 
-
+Rugby  
+Athletics  
 Cadet Band
 
 ## 80
 
 ### Crusade ‘80
 
-Magnet Music, T.O.M.S and Neil Fox
-
-‘Skelm’ trip to Transkei?
+Magnet Music, T.O.M.S and Neil Fox  
 
 ## 81
 
@@ -252,25 +208,18 @@ Magnet Music, T.O.M.S and Neil Fox
 
 ### Grease
 
-Rob getting a commendation for skiving off.
-
+Rob getting a commendation for skiving off  
 Getting out of doing cross-country 
 
 ### Chevenham
 
-Learning all the Boston songs
-
-Learning the Brick solo
-
-Grandpa passing away 
-
-Catching the bus to school 
-
-Snow in Joubert Park
+Learning all the Boston songs  
+Learning the Brick solo  
+Grandpa passing away  
+Catching the bus to school  
+Snow in Joubert Park  
 
 ### The Mini
-
-### Mpame with my bike
 
 ----
 
