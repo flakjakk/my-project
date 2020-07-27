@@ -170,8 +170,6 @@ The cows: Nos. 34 and 43
 Link: <https://goo.gl/maps/pnwKMTedV9edD7FU9>  
 
 
-
-
 ### General 
 
 Rugby in the rain...with bricks!  
