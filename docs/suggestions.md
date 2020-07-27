@@ -15,13 +15,10 @@ Don’t remember this part but here's a pic from 1963!
 
 Oakland’s Rd.
 
-Mom rescuing Deidre and myself from the pine tree. In her dress. While pregnant! Then changing our minds with a ‘switch’ 
-
-Pulling wallpaper off under the bed. Mom and dad finding out later.
-
-Peter Newton walking on his hands in the garden 
-
-Geoff being born - seeing him for the first time.
+Mom rescuing Deidre and myself from the pine tree. In her dress. While pregnant! Then changing our minds with a ‘switch’  
+Pulling wallpaper off under the bed. Mom and dad finding out later  
+Peter Newton walking on his hands in the garden  
+Geoff being born - seeing him for the first time  
 
 ----
 
@@ -56,14 +53,13 @@ Dad in action...
 ### Geoff
 
 First memory getting stung by centipede thing in Benoni driveway  
-Dad smoking 
+Dad smoking  
 
 Running through window with cowboy hat over face - first miracle as didn't get  a scratch  
-Ed: The mower-blade connecting with a bolt hidden in the grass and sending it through the one bedroom window. Some time later Geoff was running in the yard with his cowboy hat over his face and he ran slap-bang into the same window, shattering it. I don't know how he wasn't cut by the glass. A Miracle! 
+Ed: The mower-blade connecting with a bolt hidden in the grass and sending it through the one bedroom window. Some time later Geoff was running in the yard with his cowboy hat over his face and he ran slap-bang into the same window, shattering it. I don't know how he wasn't cut by the glass. A Miracle!  
 
 Biltong hanging in garage  
-Cheryl being small  - eating sand 
-
+Cheryl being small  - eating sand  
 
 ### Ed
 
@@ -77,7 +73,7 @@ Dad making us wooden houses painted white with red roofs
 
 ## 71
 
-Around March / April [??] [see article] - moving to the training college 
+Around March / April [??] [see article] - moving to the training college  
 
 ![The news](assets/images/ejkmsk-news-22jan71-coll-b.jpg)
 
@@ -87,8 +83,8 @@ Around March / April [??] [see article] - moving to the training college
 
 Chris arrives  
 Fairview Junior School  
-Cocoa in winter every lunch break. No sugar.  
-Getting bitten for the first time
+Cocoa in winter every lunch break. No sugar  
+Getting bitten for the first time  
 
 ### Geoff
 
@@ -98,15 +94,13 @@ Debbie cutting off her finger in uncle Ben's steel cutter
 Getting a hiding with a high heel from Lyn Tyler's wife  
 Shooting out the light bulb with my camera water pistol  
 Uncle Ben chasing the guys that stole his kombi - caught them at the traffic lights (and beating them up)  
-The pet chicken in the dolls house 
+The pet chicken in the dolls house  
 
 ----
 
 ## 72 - July to 74 Dec
 
 Kimberley - see [doc](kimberley.md)
-
-
 
 ---
 
