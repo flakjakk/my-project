@@ -146,7 +146,13 @@ Chores
 
 ### Paarl 
 
-#### Muldersvlei 
+#### Muldersvlei  
+
+Link to map: <https://goo.gl/maps/jT6DWfEfHD8gvxVv5>  
+
+Website: <https://www.hesketh.org.za/>  
+
+The Story: <https://www.hesketh.org.za/our-story/>
 
 Herding the cows and getting milk really cheaply [10c a litre, I think]  
 The rinkhals  
@@ -158,7 +164,12 @@ Building rafts [and losing galoshes in the sticky mud]
 The winery over the road [irony]  
 Cheryl breaking a leg  
 The cows: Nos. 34 and 43  
-Paarl Boys High 
+
+**Paarl Boys High**  
+
+Link: <https://goo.gl/maps/pnwKMTedV9edD7FU9>  
+
+
 
 
 ### General 
