@@ -13,6 +13,7 @@ Wilson's Gully
 Shelly Beach  
 Mbolompo  
 Hole in the Wall  
+
 * The long walk  
 * The desert area above Mbolompo [you can see it on Google maps!]
 
