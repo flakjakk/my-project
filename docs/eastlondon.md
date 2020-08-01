@@ -1,5 +1,6 @@
 # East London
 
+---
 
 ## 13 Porter Street (House 1)
 
@@ -7,9 +8,12 @@ I think this is it [maybe they renumbered the properties??]: <https://goo.gl/map
 
 Watching films at the library on Thursday nights [Friday?]  
 The guy who tried to steal mom's bag  
-Jamming as a band on donated instruments then getting upset because dad sold them (but we needed the money!)  
+
+It was during this time that dad showed me some chords on the guitar - us kids used to jam on the drums and guitars in the church - had quite a ball with them actually, but got very upset when dad sold them (we needed the money more!)  
+
 Spooky the cat disappeared one day - but we saw her again later in the year!  
 
+---
 
 ## Moore Street (House 2)
 
@@ -18,6 +22,7 @@ Close enough! <https://goo.gl/maps/EXt1r9kopbPrsxV18>
 Visiting uncle Mike on his ship and getting a tour through the engine-room  
 Enjoying a tour of an SA Navy frigate. Impressive!  
 
+---
 
 ## The Maris Stella Convent (House 3)  
 
@@ -45,13 +50,13 @@ Go-carts
 **Model-building**  
 Picked up the hobby of model building while in East London. We built both planes and warships and you could purchase an aeroplane model for 69c from the one particular shop, so we saved our money assiduously for this purpose. My first one was a Spitfire, and I was so proud of it!  
 
+I well remember getting a big model of the USS Enterprise, with battery-powered red flashing lights inside. I thoroughly enjoyed building it. So cool!
+
 Reading war comics (lots of)  
 
+---
+
 ### Selborne Primary
-
-Piano lessons that turned me off learning  
-‘Plip, plop’  
-
 
 **The Tuck Shop**
 
@@ -63,8 +68,13 @@ Small sausage roll for 6c and big one for 11c with sauce 👍.
 
 I played trumpet in the school orchestra which was led by Mr. Ian Sampson. On band days I had to lug my trumpet with me on the bus to school and back. One day I left it on the bus when I got off near home and never twigged until I got on the bus the next day and the bus driver gave it back to me. Whew!  
 
-Mr. Sampson thought I might go further so set up an audition for me with the East London Youth Orchestra, but we were leaving for Johannesburg so I never got to try out  
+Mr. Sampson thought I might go further so talked about setting up an audition for me with the East London Youth Orchestra, but we were leaving for Johannesburg so I never got to try out  
 
+I also went for piano lessons at school but the piano teacher freaked me out so I bunked the lessons, skulking around corners hiding from the teacher during music period. To this day I regret not persevering with the piano though  
+
+‘Plip, plop’ (This might belong in Kimberley)  
+
+---
 
 ## General
 
@@ -92,3 +102,5 @@ Quigney Baptist Church
 Mark Frame's house, his tv, his twin sister in Deidre's class  
 Gonubie  
 Nahoon mouth with uncle Edwin's [?] red boat  
+
+---
