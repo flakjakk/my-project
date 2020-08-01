@@ -48,7 +48,9 @@ Start of school - Tom Newby - Meh!
 
 Dad in action...
 
-![Dad teaching the Benoni Corps band!](assets/images/ejk-newsp-24apr70-band training-b.jpg)
+![Dad teaching the Benoni Corps band!](assets/images/ejk-newsp-24apr70-band-training-b.jpg)  
+
+Deidre and I started playing music at the tender age of 6, my instrument 'of choice' was the cornet, Deidre's the tenor horn. We played in the Benoni Corps Youth Band - for the uninitiated, 'Corps' are what Salvation Army churches are called. My dad was the Bandmaster and taught us how to read and play. We practically were the Band!  
 
 ### Geoff
 
@@ -56,19 +58,19 @@ First memory getting stung by centipede thing in Benoni driveway
 Dad smoking  
 
 Running through window with cowboy hat over face - first miracle as didn't get  a scratch  
-Ed: The mower-blade connecting with a bolt hidden in the grass and sending it through the one bedroom window. Some time later Geoff was running in the yard with his cowboy hat over his face and he ran slap-bang into the same window, shattering it. I don't know how he wasn't cut by the glass. A Miracle!  
+
+> Ed: One day while dad was mowing the lawn the mower-blade connected with a bolt hidden in the grass and sent it flying through one of the bedroom windows. It was a miracle no-one was hurt. Some days later Geoff was running in the yard with his cowboy hat over his face (as one does!)  and he ran slap-bang into the same window, shattering it. I don't know how he wasn't cut by the glass. Another miracle!  
 
 Biltong hanging in garage  
-Cheryl being small  - eating sand  
+Cheryl being small  - eating sand. And singing a lot!  
 
-### Ed
-
-The jungle-gym falling on me  
-The maid and the shoes  
-Dad driving over a scooter and thinking it was one of us kids  
-Learning to ride a bicycle and falling into the cactus  
-Having to catch the bus home, losing the 5c bus-fare and walking all the way home  
-Dad making us wooden houses painted white with red roofs 
+> Ed:  
+> The jungle-gym falling on me  
+> The maid and the shoes  
+> Dad driving over a scooter and thinking it was one of us kids  
+> Learning to ride a bicycle and falling into the cactus  
+> Having to catch the bus home, losing the 5c bus-fare and walking all the way home  
+> Dad making us wooden houses painted white with red roofs 
 
 
 ## 71
@@ -88,11 +90,15 @@ Getting bitten for the first time
 
 ### Geoff
 
+
 Andrew Cooper making shields and painting them  
 Mini Cooper green and cool  
 Debbie cutting off her finger in uncle Ben's steel cutter  
 Getting a hiding with a high heel from Lyn Tyler's wife  
+
 Shooting out the light bulb with my camera water pistol  
+> Ed: I remember this well. We shot one light out by accident, then decided to try another (which worked spectacularly) so we destroyed some more, but not all of them ('cos that would have been wasteful!)  
+
 Uncle Ben chasing the guys that stole his kombi - caught them at the traffic lights (and beating them up)  
 The pet chicken in the dolls house  
 
@@ -126,13 +132,12 @@ Mr. Green
 #### Firlands Boys Home 
 
 Judo  
-Jo’burg One  
-YP and the band  
+
+At Jo'burg One [slang for the Corps based at Salvation Army Headquarters] we joined the Youth Band. This was the big time. These guys actually played stuff in keys other than C, F or G. Hectic. Learned how to read faster, and lip-tune some - you have to when you're playing the wrong fingering and your notes need some bending to fit the key. It must have sounded terrible!  
+
 Simmonds Street  
 Getting the pellet guns  
 Chores 
-
-
 
 ----
 
@@ -140,7 +145,7 @@ Chores
 
 ### Paarl 
 
-#### Muldersvlei  
+### Muldersvlei  
 
 Link to map: <https://goo.gl/maps/jT6DWfEfHD8gvxVv5>  
 
@@ -158,88 +163,95 @@ Building rafts [and losing galoshes in the sticky mud]
 The winery over the road [irony]  
 Cheryl breaking a leg  
 The cows: Nos. 34 and 43  
+Mr. Pullen from the Old Men's Home - he flew Hurricanes and Spitfires in World War 2
 
-**Paarl Boys High**  
+### Paarl Boys High  
 
 Link: <https://goo.gl/maps/pnwKMTedV9edD7FU9>  
 
-
-### General 
-
 Rugby in the rain...with bricks!  
+
+
+## General  
+
 Cape Town Corps  
-Double-feature movies with Chris Lovick 
+Double-feature movies with Chris Lovick  
 
 ----
 
 
-Going through the Karoo on our way from Paarl up to Paddock via the Transkei 
+## 78  
+
+Paddock - see [doc](paddock.md)  
+
+Going through the Karoo on our way from Paarl up to Paddock via the Transkei  
 
 ----
 
-## 78
+## 79  
 
-Paddock - see [doc](paddock.md)
+We moved back to Johannesburg in April and I joined the Roosevelt High School Cadet Band on trumpet. Got my half-colours for Band and in 1980, when Mr. Blackstock asked Pier Pucci - who was the band Drum Major if he would form a group to back singers for the school concert Pier asked if I would play guitar and so I joined him and his brother Rob, a drummer, to form the school band.  
 
 
-----
-
-## 79 April
-
-Moving back up to Johannesburg.
-
-### Firlands Boys Home 
+### Firlands Boys Home  
 
 Scalextric and model trains  
-Snooker 
+Snooker  
 
-### Roosevelt High School 
+### Roosevelt High School  
 
-Rugby  
-Athletics  
-Cadet Band
+**Rugby**  
 
-## 80
+**Athletics**  
 
-### Crusade ‘80
+I did the high-jump [Fosbury Flop] and 100m sprint, Deidre ran the 100m as well and set up some records that stood for a l-o-o-o-o-ng time  
+
+## 80  
+
+**Crusade ‘80**  
 
 Magnet Music, T.O.M.S and Neil Fox  
 
-## 81
+## 81  
 
-### Cadet Camp
+**Cadet Camp**  
 
-### Grease
+**Grease**  
 
 Rob getting a commendation for skiving off  
-Getting out of doing cross-country 
+Getting out of doing cross-country  
 
-### Chevenham
+### Chevenham  
 
 Learning all the Boston songs  
 Learning the Brick solo  
 Grandpa passing away  
 Catching the bus to school  
 Snow in Joubert Park  
+Samantha the Great Dane  
 
-### The Mini
+### Personal Transport  
+
+**The Mini**  
+
+**The DT 175**  
 
 ----
 
-## Format decisions
+## General subjects  
 
-Nail down the months and divide using them instead of year numbers.
+The Pietermaritzburg Kidgells  
+
+The Animals  
+
+Who / when  
+
+The Transkei - see [doc](transkei.md)  
 
 ----
 
-## General subjects 
+## Format decisions  
 
-The Pietermaritzburg Kidgells
-
-The Animals 
-
-Who / when 
-
-The Transkei - see [doc](transkei.md)
+Nail down the months and divide using them instead of year numbers  
 
 ----

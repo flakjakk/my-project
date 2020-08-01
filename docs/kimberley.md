@@ -1,6 +1,6 @@
 # Kimberley
 
-We arrived in Kimberley in mid 1972 [June - July??]. It was mom and dad's first appointment as Lieutenants straight out of Training College and they were tasked to pastor the Kimberley Corps and manage the attached Men's Home. We lived in the 'manse' at 13 Crossman Road  
+We arrived in Kimberley in mid 1972 [June - July??]. The folks were transferred there as their first commission after graduating from the Salvation Army Training College and were tasked to pastor the Kimberley Corps and manage the attached Men's Home. We lived in the 'manse' at 13 Crossman Road - Deidre and I were in Standard 1 [Grade 3].  
 
 Google maps link: <https://goo.gl/maps/u4Z9zUeJjgNeBJHP6>
 
@@ -21,6 +21,8 @@ Link: <https://goo.gl/maps/7qEFRqh1fYF5TkHE9>
 
 Link: <https://goo.gl/maps/FsmepLD4V65LjGUw9>  
 
+I started piano lessons at the Theatre in Kimberly. Had a nice teacher and learned a lot. I got as far as my Grade 1 practical exam but didn't hack it [the examiner was a really old guy who intimidated me muchly] so I kind of lost interest for a while after that.  
+
 The funfair  
 There were war memorials with statues and cannons all over town  
 Tony Block’s birthday party  
@@ -37,11 +39,14 @@ The Karen Muir swimming pool
 <https://goo.gl/maps/fgjdodToigGri3Em8>  
 
 The Mullers  
+The Switzers  
 
 **Kimberley Corps**  
 Doing the rounds with dad [collecting the elderly congregation members] - Looper and Boom  
 Saturday night Open Air Meeting  
-Carolling at Christmas time  
+
+The Corps was more established than Benoni Corps and had a bigger band, but it was still pretty small. We had fun most of the time, especially during Christmas season when we went 'carolling'  
+
 Annekie Tolmay hiding away from Father Christmas
 
 
