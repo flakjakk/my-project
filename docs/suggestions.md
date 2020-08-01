@@ -22,37 +22,37 @@ Geoff being born - seeing him for the first time
 
 ----
 
-## 67
+## 67  
 
-Springs [??]
+Springs [??]  
 
 Punch and Judy  
 Showing Geoff how to make the Hillman go ‘like a rocket’ by putting clods of sand into the petrol tank  
-Getting punched by my ‘buddy’ from next door while building tents around the dining room table 
+Getting punched by my ‘buddy’ from next door while building tents around the dining room table  
 
-## 68
+## 68  
 
-Cheryl arrives
+Cheryl arrives  
 
-## 69
+## 69  
 
-Listening to the first moon landing transmission - July 20 1969.
+Listening to the first moon landing transmission - July 20 1969  
 
 ----
 
-## 70 
+## 70  
 
-### Benoni
+### Benoni  
 
-Start of school - Tom Newby - Meh!
+Start of school - Tom Newby - Meh!  
 
-Dad in action...
+Dad in action...  
 
 ![Dad teaching the Benoni Corps band!](assets/images/ejk-newsp-24apr70-band-training-b.jpg)  
 
-Deidre and I started playing music at the tender age of 6, my instrument 'of choice' was the cornet, Deidre's the tenor horn. We played in the Benoni Corps Youth Band - for the uninitiated, 'Corps' are what Salvation Army churches are called. My dad was the Bandmaster and taught us how to read and play. We practically were the Band!  
+Deidre and I started playing music at the tender age of 6, my instrument 'of choice' was the cornet, Deidre's the tenor horn. We played in the Benoni Corps Youth Band - for the uninitiated, 'Corps' are what Salvation Army churches are called. Dad was the Bandmaster and taught us how to read and play. We practically were the Band!  
 
-### Geoff
+### Geoff  
 
 First memory getting stung by centipede thing in Benoni driveway  
 Dad smoking  
@@ -199,6 +199,8 @@ Scalextric and model trains
 Snooker  
 
 ### Roosevelt High School  
+
+### John Orr Tech
 
 **Rugby**  
 

@@ -11,7 +11,9 @@ Tar-melting heat, freezing cold in winter
 
 **Kimberley Preparatory School**  
 
-This is it, as far as I can work out: <https://goo.gl/maps/5iCQGgoueku1TRtWA>
+This is it, as far as I can work out: <https://goo.gl/maps/5iCQGgoueku1TRtWA>  
+
+Deidre and I spent the last half of 1972 here. We completed Std 1 (Grade 3) and then went our separate ways, she to Belgravia and I to Kimberley Boys Junior School. It was a first for me as I had attended only co-ed schools up until then. Same for Deidre.
 
 **Kimberly Boys Junior School**  
 
