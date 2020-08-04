@@ -6,21 +6,22 @@
 
 ### Places
 
-Porpoise Gully  
 Clark's Point  
+The Sphinx  
+Porpoise Gully  
 Flat Rocks  
-Wilson's Gully  
 Shelly Beach  
+Wilson's Gully  
+The beach on the other side of Wilson’s  
 Mbolompo  
 Hole in the Wall  
 
 * The long walk  
 * The desert area above Mbolompo [you can see it on Google maps!]
 
-The Sphinx  
 Walks along the coast  
-The beach on the other side of Wilson’s  
 
+---
 
 ### General
 
@@ -51,6 +52,8 @@ Hermit crabs in the grass at night
 Uncle Berry snorkeling with his cap on backwards  
 Uncle Tick, and Dave and Peg Barnes  
 
+---
+
 ## Prospect
 
 Mom drifting the Kombi sideways near Manzi  
@@ -70,17 +73,26 @@ The Toyota truck Grandpa used to deliver purchases to his customers
 ‘Bathing’ in a porcelain bowl  
 Selina  
 The paraffin lamps, and candles  
+The generator being turned on for a couple of hours in the evening  
+
 Reading the books in the 'other' room [on the right as you went down the passage to the front door]. Rupert the Bear was my favourite  
+
 Watching the staff butcher a sheep that was hanging in the tree upside-down. Put me off mutton for years!  
+
 The Studebaker  
 Prospect with my bike  
 Granny feeding the dogs  
 The big iron stove range thing in the kitchen  
 The cows coming home  
-The wild pigs  
+The wild pigs (and piglets)  
 Granny using the separator for the milk  
 All the animal skins on the floor  
 Grandpa and his radio  
+Grannie doctoring a little child who had been kicked by a horse  
+Visiting Uncle Ernest in hospital after his stroke. So sad...  
+Visiting Lutubeni, and mom pointing out her classrooms etc.  
 Stoneydrift  
 Tafalehashe  
 Rod's plane and the 'airstrip'  
+
+---
