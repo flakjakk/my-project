@@ -20,7 +20,7 @@ Mr. Greef, Michael van der Merwe and myself
 Sport  
 
 **The library**  
-I discovered the school library early on and spent many lunch-breaks there [after munching a large lunch, packed by mom]. It was here that I first came across The Lord of the Ring and I booked it out and read it right through, an exercise I repeated every year for at least the next 8 years  
+I discovered the school library early on and spent many lunch-breaks there [after munching a large lunch, packed by mom]. It was here that I first came across The Lord of the Rings and I booked it out and read it right through, an exercise I repeated every year for at least the next 8 years  
 
 ---
 
@@ -57,14 +57,18 @@ Catching the bus to school and back
 
 ---
 
+### The Factory   
+
+---
+
 ### Murchison  
 
-*   Bikes 
-*   Deidre’s first solo bike ride 
-*   The Camerons 
-*   Andrew Cameron and the taxi driver 
-*   YP at Murchison 
-*   Mrs. Cameron and the exploding ginger bottles 
+Bikes  
+Deidre’s first solo bike ride  
+The Camerons  
+Andrew Cameron and the taxi driver  
+YP at Murchison  
+Mrs. Cameron and the exploding ginger bottles  
 
 
 **Guavas**  
