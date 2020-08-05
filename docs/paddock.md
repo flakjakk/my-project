@@ -120,7 +120,7 @@ I found a bogey in the factory. It came from one of the cane trolleys, and I dec
 
 I ran ahead of it about 100m or so and waited for it to catch up, expecting it to trundle along at a reasonable pace but I didn't reckon on the effect gravity would have on a free-wheeling bogey on rails! I watched it's approach but soon realised that it was belting along at a rapid rate, and picking up speed as it went!  
 
-I knew that it would break my leg or something if I stood in front of it and tried to stop it so I figured I would stand next to the tracks and try to derail it as it went past. This was a simple maneuvre to execute and I pulled it off (pun intended!(), but the bogey went one way and I the other, right into the thick grass next to the tracks. Bar some scratches and scrapes I was alright. I retreived the bogey from the track side and took it the rest of the way to Chiltley  
+I knew that it would break my leg or something if I stood in front of it and tried to stop it so I figured I would stand next to the tracks and try to derail it as it went past. This was a simple maneuvre to execute and I pulled it off (pun intended!, but the bogey went one way and I the other, right into the thick grass next to the tracks. Bar some scratches and scrapes I was alright. I retrieved the bogey from the track side and took it the rest of the way to Chiltley  
 
 Here's a pic of the track near where I managed to derail the bogey (taken in December 2015):  
 
