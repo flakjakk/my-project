@@ -6,7 +6,10 @@ Moved here in 1978
 
 ## House 1
 
-Lived here first  
+As far as I can ascertain the house where we lived is the one indicated with an arrow. The other houses had not yet been built yet (x'ed out).
+
+![Our house](assets/images/our-house.jpg)
+
 Train line running behind  
 Playing the mouth-organ on the water-tower  
 The Fishers  
@@ -38,14 +41,6 @@ Playing the Vox guitar while sitting on the roof
 Danny Duck  
 Chris and Lloyds Kentucky Braaied Chickens  
 
-**The One Tower**  
-
-Here's a pic of the tower taken on the 10th December 2015:
-
-![The One Tower](assets/images/the-tower.jpg)  
-
-Deidre and I climbed the tower attached to the factory a number of times. The ladder only had space for one person at a time, and it was rather high, and somewhat dangerous, but the view from the top was quite spectacular. 
-
 ---
 
 ## Chiltley
@@ -62,6 +57,7 @@ Chris learns to ride a BIG bicycle - one leg through the crossbars to pedal
 ## Things to remember  
 
 Horses  
+Catties  
 
 **Cows and chickens at Chiltley**  
 The cows were named Kitchen and ??? Geoff and Jonathan C tried to ride the calf. The bullock stands on Geoff’s foot  
@@ -74,7 +70,35 @@ Catching the bus to school and back
 
 ### The Factory   
 
-We spent a lot of time playing in and around the abandoned factory on the property. This included a covered siding for the local narrow-gauge trains. 
+**The One Tower**  
+
+Here's a pic of the tower taken on the 10th December 2015:  
+
+![The One Tower](assets/images/the-tower.jpg)  
+
+Deidre and I climbed the tower attached to the factory a number of times. The ladder only had space for one person at a time, and it was rather high, and somewhat dangerous, but the view from the top was quite spectacular.  
+
+We spent a lot of time playing in and around the abandoned factory on the property. This included a covered siding for the local narrow-gauge trains just off the main line which was the regular service between Harding and Port Shepstone. Inside the factory there were empty offices, a boiler room, and large open areas where wattle bark and sugar-cane could be loaded onto the trains  
+
+Paddock used to be the main factory for the Natal Tanning Extract Company Ltd but operations ceased there in the late 1960'. From their [website](http://www.nte.co.za/nte-history/):  
+
+> Another factory located at Paddock was opened in 1921 with a capacity of 300 tons per month  
+
+> in 1927, the Paddock factory was converted into a bark buying depot and in 1937, repurposed as an extract factory.  
+
+> With the increased demand for wattle extract during and after the war, the NTE board decided to expand its property division. In addition, NTE also controlled three wattle growing subsidiary companies, namely Murchison Plains Black Wattle Company, Alfredia Wattle Company and the Ihluku Wattle Company, which between them owned 6 250 ha, 83% of which was under wattle, all three supplying the Paddock factory.  
+
+> The Paddock factory closed in 1967  
+
+And we arrived in 1978!  
+
+We found an old sugar-cane railway truck out in the open below the factory and decided to move it up into the factory and onto the rails where we could have some fun with it. This took a while and some planning because we had to lift it from one part of the factory up about 3m to the level where the tracks were. We eventually accomplished this then placed it on the rails inside the factory.  
+
+We got it up to speed and jumped on with a view to running it through the factory and out the other side where there was a second siding. Unbeknownst to us someone had strung thick wire across the rails about 1.5m off the ground inside the factory - I guess to discourage exactly the behaviour we were engaging in. Luckily for us, it being for transporting sugarcane it had 4 poles attached vertically on each corner of the truck and with our weight and momentum we snapped the wires completely as we went. If it wasn't for the poles every one of us would have been yanked off the trolley and damaged in one way or another. For sure  
+
+The other thing we didn't take into account was Mr. Jessop! He was a local employee who looked after the factory and turned the generator on each day and off every night (we had electricity until around 10:30-11:00 pm only). He came storming out of the office area and shouted at us as we rolled past. We ignored him and carried on going until we were well past the factory then jumped off and ran away. He didn't catch us....  
+
+I remember finding some old fire extinguishers lying around, and emptying them made a huge racket throughout the factory - much fun!  
 
 ---
 
@@ -94,7 +118,13 @@ We used to pick guavas off the trees in the orchard - they were freely available
 **The bogey**  
 I found a bogey in the factory. It came from one of the cane trolleys, and I decided to take it back to Chiltley to use as a barbell. I figured it would be an easy task to roll it all the way home on the railroad track which ran from the factory in Paddock all the way past Chiltley at a gentle incline. I placed it on the rails at the road crossing and started pushing it. I had to keep stopping it from running ahead because of the incline, but this became tedious after a while, so I thought I might run ahead of it and catch it further down the track. Things didn't work out so well, though.  
 
-I ran ahead of it about 100m or so and waited for it to catch up, expecting it to trundle along at a reasonable pace but I didn't reckon on the effect gravity would have on a free-wheeling bogey on rails! I watched it's approach but soon realised that it was belting along at a rapid rate.
+I ran ahead of it about 100m or so and waited for it to catch up, expecting it to trundle along at a reasonable pace but I didn't reckon on the effect gravity would have on a free-wheeling bogey on rails! I watched it's approach but soon realised that it was belting along at a rapid rate, and picking up speed as it went!  
+
+I knew that it would break my leg or something if I stood in front of it and tried to stop it so I figured I would stand next to the tracks and try to derail it as it went past. This was a simple maneuvre to execute and I pulled it off (pun intended!(), but the bogey went one way and I the other, right into the thick grass next to the tracks. Bar some scratches and scrapes I was alright. I retreived the bogey from the track side and took it the rest of the way to Chiltley  
+
+Here's a pic of the track near where I managed to derail the bogey (taken in December 2015):  
+
+![Track](assets/images/chiltley-track.jpg)
 
 **Camping in Oribi Gorge with Peter Holmes**  
 Peter picked us up at the C residence in his short-wheelbase Landrover and drove us to the Gorge. We trekked into the Gorge and eventually found a cliff with a massive overhang which we decided to use as our camp. We built a fire as darkness was falling then picked out places to bed down and sat around cooking something to munch, then we chatted away until we fell asleep. 
