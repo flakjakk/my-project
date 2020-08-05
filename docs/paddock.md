@@ -6,7 +6,7 @@ Moved here in 1978
 
 ## House 1
 
-As far as I can ascertain the house where we lived is the one indicated with an arrow. The other houses had not yet been built yet (x'ed out).
+As far as I can ascertain the house where we lived is the one indicated with an arrow. The other houses had not been built yet (x'ed out).
 
 ![Our house](assets/images/our-house.jpg)
 
