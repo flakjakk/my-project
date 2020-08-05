@@ -83,11 +83,11 @@ We spent a lot of time playing in and around the abandoned factory on the proper
 Paddock used to be the main factory for the Natal Tanning Extract Company Ltd but operations ceased there in the late 1960'. From their [website](http://www.nte.co.za/nte-history/):  
 
 > Another factory located at Paddock was opened in 1921 with a capacity of 300 tons per month  
-
+> 
 > in 1927, the Paddock factory was converted into a bark buying depot and in 1937, repurposed as an extract factory.  
-
+> 
 > With the increased demand for wattle extract during and after the war, the NTE board decided to expand its property division. In addition, NTE also controlled three wattle growing subsidiary companies, namely Murchison Plains Black Wattle Company, Alfredia Wattle Company and the Ihluku Wattle Company, which between them owned 6 250 ha, 83% of which was under wattle, all three supplying the Paddock factory.  
-
+> 
 > The Paddock factory closed in 1967  
 
 And we arrived in 1978!  
@@ -120,7 +120,7 @@ I found a bogey in the factory. It came from one of the cane trolleys, and I dec
 
 I ran ahead of it about 100m or so and waited for it to catch up, expecting it to trundle along at a reasonable pace but I didn't reckon on the effect gravity would have on a free-wheeling bogey on rails! I watched it's approach but soon realised that it was belting along at a rapid rate, and picking up speed as it went!  
 
-I knew that it would break my leg or something if I stood in front of it and tried to stop it so I figured I would stand next to the tracks and try to derail it as it went past. This was a simple maneuvre to execute and I pulled it off (pun intended!, but the bogey went one way and I the other, right into the thick grass next to the tracks. Bar some scratches and scrapes I was alright. I retrieved the bogey from the track side and took it the rest of the way to Chiltley  
+I knew that it would break my leg or something if I stood in front of it and tried to stop it so I figured I would stand next to the tracks and try to derail it as it went past. This was a simple maneuvre to execute and I pulled it off (pun intended!), but the bogey went one way and I the other, right into the thick grass next to the tracks. Bar some scratches and scrapes I was alright. I retrieved the bogey from the track side and took it the rest of the way to Chiltley  
 
 Here's a pic of the track near where I managed to derail the bogey (taken in December 2015):  
 
