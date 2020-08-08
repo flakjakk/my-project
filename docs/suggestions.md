@@ -13,22 +13,22 @@ Don’t remember this part but here's a pic from 1963!
 
 ## 66
 
-Oakland’s Rd.
+### Oakland’s Rd.
 
-Mom rescuing Deidre and myself from the pine tree. In her dress. While pregnant! Then changing our minds with a ‘switch’  
-Pulling wallpaper off under the bed. Mom and dad finding out later  
-Peter Newton walking on his hands in the garden  
-Geoff being born - seeing him for the first time  
+* Mom rescuing Deidre and myself from the pine tree. In her dress. While pregnant! Then changing our minds with a ‘switch’  
+* Pulling wallpaper off under the bed. Mom and dad finding out later  
+* Peter Newton walking on his hands in the garden  
+* Geoff being born - seeing him for the first time  
 
 ----
 
 ## 67  
 
-Springs [??]  
+### Springs  
 
-Punch and Judy  
-Showing Geoff how to make the Hillman go ‘like a rocket’ by putting clods of sand into the petrol tank  
-Getting punched by my ‘buddy’ from next door while building tents around the dining room table  
+* Punch and Judy  
+* Showing Geoff how to make the Hillman go ‘like a rocket’ by putting clods of sand into the petrol tank  
+* Getting punched by my ‘buddy’ from next door while building tents around the dining room table  
 
 ## 68  
 
@@ -52,13 +52,11 @@ Dad in action...
 
 Deidre and I started playing music at the tender age of 6, my instrument 'of choice' was the cornet, Deidre's the tenor horn. We played in the Benoni Corps Youth Band - for the uninitiated, 'Corps' are what Salvation Army churches are called. Dad was the Bandmaster and taught us how to read and play. We practically were the Band!  
 
-### Geoff  
+**Geoff**  
 
-First memory getting stung by centipede thing in Benoni driveway  
-Dad smoking  
-
-Running through window with cowboy hat over face - first miracle as didn't get  a scratch  
-
+* First memory getting stung by centipede thing in Benoni driveway  
+* Dad smoking  
+* Running through window with cowboy hat over face - first miracle as didn't get  a scratch  
 > Ed: One day while dad was mowing the lawn the mower-blade connected with a bolt hidden in the grass and sent it flying through one of the bedroom windows. It was a miracle no-one was hurt. Some days later Geoff was running in the yard with his cowboy hat over his face (as one does!)  and he ran slap-bang into the same window, shattering it. I don't know how he wasn't cut by the glass. Another miracle!  
 
 Biltong hanging in garage  
@@ -72,6 +70,9 @@ Cheryl being small  - eating sand. And singing a lot!
 > Having to catch the bus home, losing the 5c bus-fare and walking all the way home  
 > Dad making us wooden houses painted white with red roofs 
 
+**Geoff's 3rd birthday**
+
+![Happy Birthday Geoff!](assets/images/geoff's-3rd-bday-cake.jpg)
 
 ## 71
 
@@ -83,24 +84,41 @@ Around March / April [??] [see article] - moving to the training college
 
 ![Trainee Officers](assets/images/trainee-officers-1971-01b.jpg)
 
+You will notice that mom isn't in the photo. I am reliably informed that this was due to her being in hospital and having Chris  
+
 Chris arrives  
-Fairview Junior School  
-Cocoa in winter every lunch break. No sugar  
-Getting bitten for the first time  
 
-### Geoff
+**Fairview Junior School**  
+- All our Portuguese classmates - Manual P, Manual F, Isabella etc.  
+- Cocoa in winter every lunch break. No sugar  
+- Getting bitten for the first time  
 
 
-Andrew Cooper making shields and painting them  
-Mini Cooper green and cool  
-Debbie cutting off her finger in uncle Ben's steel cutter  
-Getting a hiding with a high heel from Lyn Tyler's wife  
+**Geoff**
 
-Shooting out the light bulb with my camera water pistol  
+* Andrew Cooper making shields and painting them  
+* Mini Cooper green and cool  
+* Debbie cutting off her finger in uncle Ben's steel cutter  
+* Getting a hiding with a high heel from Lyn Tyler's wife  
+* Shooting out the light bulb with my camera water pistol  
 > Ed: I remember this well. We shot one light out by accident, then decided to try another (which worked spectacularly) so we destroyed some more, but not all of them ('cos that would have been wasteful!)  
 
-Uncle Ben chasing the guys that stole his kombi - caught them at the traffic lights (and beating them up)  
-The pet chicken in the dolls house  
+
+* Uncle Ben chasing the guys that stole his kombi - caught them at the traffic lights (and beating them up)  
+* The pet chicken in the dolls house
+* The folks picking us up from school on Monday afternoons  
+* Playing in the park across the road from the Training College. Deidre coming off the round-about (?) and damaging her jaw  
+* Watching the Carlton Tower being built  
+* Lying in bed in the dark late one night and hearing the Cadets singing 'How Great Thou Art' - very moving  
+* Getting over my dreams of being all alone  
+* My pop-gun shotgun and cowboy hat  
+* Mealtimes at the College  
+    * Thursday night: Mash and beans (liked the mash but the beans...ugh!)  
+    * Friday night: fish and chips (Yay!)  
+* The voice of Major Russell  
+* Movie nights at the College  
+
+
 
 ----
 
@@ -123,21 +141,23 @@ Kimberley - see [doc](kimberley.md)
 ### Johannesburg 
 
 
-#### Franklin D. Roosevelt
+**Franklin D. Roosevelt**
 
-Hiawatha  
-Mr. Green 
+* Hiawatha  
+* Mr. Green 
 
 
-#### Firlands Boys Home 
+**Firlands Boys Home** 
 
-Judo  
+* Judo  
+* Movie nights  
+
 
 At Jo'burg One [slang for the Corps based at Salvation Army Headquarters] we joined the Youth Band. This was the big time. These guys actually played stuff in keys other than C, F or G. Hectic. Learned how to read faster, and lip-tune some - you have to when you're playing the wrong fingering and your notes need some bending to fit the key. It must have sounded terrible!  
 
-Simmonds Street  
-Getting the pellet guns  
-Chores 
+* Simmonds Street  
+    * Getting the pellet guns  
+    * Chores 
 
 ----
 
@@ -153,29 +173,33 @@ Website: <https://www.hesketh.org.za/>
 
 The Story: <https://www.hesketh.org.za/our-story/>
 
-Herding the cows and getting milk really cheaply [10c a litre, I think]  
-The rinkhals  
-Getting on the bus in the dark at mid-winter [mud, raining, cold]  
-Kleilat and the train  
-Playing down at the dam  
-Braaing meat using paper only  
-Building rafts [and losing galoshes in the sticky mud]  
-The winery over the road [irony]  
-Cheryl breaking a leg  
-The cows: Nos. 34 and 43  
-Mr. Pullen from the Old Men's Home - he flew Hurricanes and Spitfires in World War 2
+* Herding the cows and getting milk really cheaply [10c a litre, I think]  
+* The rinkhals  
+* Getting on the bus in the dark at mid-winter [mud, raining, cold]  
+* Kleilat and the train  
+* Playing down at the dam  
+* Braaing meat using paper only  
+* Building rafts [and losing galoshes in the sticky mud]  
+* The winery over the road [irony]  
+* Cheryl breaking a leg  
+* The cows: Nos. 34 and 43  
+* Mr. Pullen from the Old Men's Home - he flew Hurricanes and Spitfires in World War 2
 
 ### Paarl Boys High  
 
 Link: <https://goo.gl/maps/pnwKMTedV9edD7FU9>  
 
-Rugby in the rain...with bricks!  
+* Rugby in the rain...with bricks!  
 
 
 ## General  
 
-Cape Town Corps  
-Double-feature movies with Chris Lovick  
+
+* Squirrels in the oak trees at Paarl Boys - the first I'd ever seen
+* Watching the sun clear the DuToitspanKloof Mountains at exactly 8:00am from in front of the school on a freezing winter morning
+* Cape Town Corps  
+* Double-feature movies with Chris Lovick  
+
 
 ----
 
@@ -184,7 +208,7 @@ Double-feature movies with Chris Lovick
 
 Paddock - see [doc](paddock.md)  
 
-Going through the Karoo on our way from Paarl up to Paddock via the Transkei  
+* Going through the Karoo on our way from Paarl up to Paddock via the Transkei  
 
 ----
 
@@ -195,8 +219,8 @@ We moved back to Johannesburg in April and I joined the Roosevelt High School Ca
 
 ### Firlands Boys Home  
 
-Scalextric and model trains  
-Snooker  
+* Scalextric and model trains  
+* Snooker  
 
 ### Roosevelt High School  
 
@@ -220,17 +244,17 @@ Magnet Music, T.O.M.S and Neil Fox
 
 **Grease**  
 
-Rob getting a commendation for skiving off  
-Getting out of doing cross-country  
+* Rob getting a commendation for skiving off  
+* Getting out of doing cross-country  
 
 ### Chevenham  
 
-Learning all the Boston songs  
-Learning the Brick solo  
-Grandpa passing away  
-Catching the bus to school  
-Snow in Joubert Park  
-Samantha the Great Dane  
+* Learning all the Boston songs  
+* Learning the Brick solo  
+* Grandpa passing away  
+* Catching the bus to school  
+* Snow in Joubert Park  
+* Samantha the Great Dane  
 
 ### Personal Transport  
 

@@ -3,12 +3,6 @@
 
 ## Mpame
 
-**Games**  
-
-Once the table had been cleared after supper the adults would sit out on the verandah while us kids played board- or card-games. Monopoly and Cluedo were favourites. Card games we usually played were Rummy, Canasta, Bridge or Klaberjass. We also had a game called Pit where you buy and sell produce (wheat, rye, barley etc.). I don't remember much about the game except that it involved a lot of shouting!
-
-We played a lot more games than this, I just don't recall them!
-
 ### Places
 
 Clark's Point  
@@ -19,7 +13,7 @@ Porpoise Gully
 
 I remember fishing with Geoff at Flat Rocks the one time. The tide was coming in so we had to be careful - at high tide the rocks are completely covered, and the sea at the Wild Coast is, well, _wild_!  
 
-We'd made our last-ditch casts and were thinking of packing up as we were already dodging waves when a fish took Geoff's line with a vengeance. I reeled in and scrambled to get our gear together while Geoff tried to bring the fish in and the incoming tide helped to get it up onto the Flats. Because the waves were knee-deep we couldn't see what it was until he pulled it in close: the biggest Moonie I've ever seen! We just managed to make it back to the rocks before the tide came surging in _hard_, covering the Flats completely.  
+We'd made our last-ditch casts and were thinking of packing up as we were already dodging waves when a fish took Geoff's line with a vengeance. I reeled my line in and scrambled to get our gear together while Geoff tried to bring the fish in and onto the Flats. Because the waves were knee-deep we couldn't see what it was until he pulled it in close: the biggest Moonie I've ever seen! We just managed to make it back to the rocks before the tide came surging in _hard_, covering the Flats completely.  
 
 **Shelly Beach**  
 
@@ -52,9 +46,20 @@ Uncle Clive catching mullet with a net
 Rod catching the shark using a kite and the old shark rod that was kept inside Batchelor's - Uncle Edwin’s heart attack thing  
 Using the old fibreglass boat as a sled down the hill behind the camp  
 
+**Games**  
+
+Once the supper-table had been cleared the adults would sit out on the verandah while us kids played board- or card-games. Monopoly and Cluedo were favourites. Card games we usually played were Rummy, Canasta, Bridge or Klaberjass. We also had a game called Pit where you buy and sell produce (wheat, rye, barley etc.). I don't remember much about the game except that it involved a lot of shouting!
+
+We played a lot more games than this, I just don't recall them!
+
 **Golfing**  
 
 Tried playing golf at the camp a few times. You tee off from the bank in front of the camp and attempt to get your ball over the stream and well onto the bank on the other side. You have two options: rough (really rough) or bunker. The only green is the colour of the grass!  
+
+**Knees up!**  
+
+The holiday when I damaged my knee trying to beat a wave around the rocks and had to be taken to Umtata hospital. They drained the blood into a kidney bowl using a **massive** syringe. I had to use a crutch to get around and was required to keep my foot elevated for two weeks of the holiday - which was torture - but if I remember correctly we were there for nearly 4 weeks that year so it wasn't so bad  
+
 
 Collecting driftwood for the bonfire  
 Mpame with my bike  
@@ -64,14 +69,14 @@ The long-drop
 Sharing the green tent with Geoff  
 Uncle Clive shooting the green mamba in the end hut  
 Opening the camp up - the shutters  
-
-**Knees up!**  
-
-The holiday when I damaged my knee trying to beat a wave around the rocks and had to be taken to Umtata hospital. They drained the blood into a kidney bowl using a **massive** syringe. I had to use a crutch to get around and was required to keep my foot elevated for two weeks of the holiday - which was torture - but if I remember correctly we were there for nearly 4 weeks that year so it wasn't so bad  
-
 Hermit crabs in the grass at night  
 Uncle Berry snorkeling with his cap on backwards  
 Uncle Tick, and Dave and Peg Barnes  
+Flying from Tafelehashe to Prospect and back to Tafelehashe (stunt-flying). Buzzing the airstrip to get the sheep and cows out of the way. Rod flying under the influence and buzzing the camp at Mpame  
+Deidre and Snoopy in a cave  
+Deidre, Aunty Enid and me swimming in the little gully near Porpoise Gully  
+The graves at Prospect  
+In the new store-room warehouse thing jumping on the wool being stuffed into massive sacks for transport  
 
 ---
 
