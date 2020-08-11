@@ -3,6 +3,8 @@
 
 ## Mpame
 
+![Overview](assets/images/mpame-240520.jpg)
+
 ### Places
 
 Clark's Point  
@@ -13,7 +15,7 @@ Porpoise Gully
 
 I remember fishing with Geoff at Flat Rocks the one time. The tide was coming in so we had to be careful - at high tide the rocks are completely covered, and the sea at the Wild Coast is, well, _wild_!  
 
-We'd made our last-ditch casts and were thinking of packing up as we were already dodging waves when a fish took Geoff's line with a vengeance. I reeled my line in and scrambled to get our gear together while Geoff tried to bring the fish in and onto the Flats. Because the waves were knee-deep we couldn't see what it was until he pulled it in close: the biggest Moonie I've ever seen! We just managed to make it back to the rocks before the tide came surging in _hard_, covering the Flats completely.  
+We'd made our last-ditch casts and were thinking of packing up as we were already dodging waves when a fish took Geoff's line with a vengeance. I reeled my line in and scrambled to get our gear together while Geoff brought the fish in and onto the Flats. Because the waves were knee-deep we couldn't see what it was until he pulled it in close: the biggest Moonie I've ever seen! We just managed to make it back to the rocks before the tide came surging in _hard_, covering the Flats completely.  
 
 **Shelly Beach**  
 
@@ -21,12 +23,17 @@ I found a strange fish one day at low tide at Shelly Beach. It was transparent w
 
 Wilson's Gully  
 The beach on the other side of Wilson’s  
+
+**Mncwasa**
+
+![Mncwasa Beach](assets/images/mncwasa-050219.jpg)
+
 Crossing the Mncwasa River mouth on my own  
 Mbolompo  
 Hole in the Wall  
 
 * The long walk  
-* The desert area above Mbolompo [you can see it on Google maps!]
+* The desert area above Mbolompo
 
 Walks along the coast  
 
@@ -48,13 +55,13 @@ Using the old fibreglass boat as a sled down the hill behind the camp
 
 **Games**  
 
-Once the supper-table had been cleared the adults would sit out on the verandah while us kids played board- or card-games. Monopoly and Cluedo were favourites. Card games we usually played were Rummy, Canasta, Bridge or Klaberjass. We also had a game called Pit where you buy and sell produce (wheat, rye, barley etc.). I don't remember much about the game except that it involved a lot of shouting!
+Once the supper-table had been cleared the adults would sit out on the verandah while we played board- or card-games. Monopoly and Cluedo were favourites. Card games we usually played were Rummy, Canasta, Bridge or Klaberjass. We also had a game called Pit where you buy and sell produce (wheat, rye, barley etc.). I don't remember much about the game except that it involved a lot of shouting!
 
 We played a lot more games than this, I just don't recall them!
 
 **Golfing**  
 
-Tried playing golf at the camp a few times. You tee off from the bank in front of the camp and attempt to get your ball over the stream and well onto the bank on the other side. You have two options: rough (really rough) or bunker. The only green is the colour of the grass!  
+Tried playing golf at the camp a few times. You tee off from the bank in front of the camp and attempt to get your ball over the stream and well onto the bank on the other side. You have three options: rough, really rough or bunker. The only green is the colour of the grass!  
 
 **Knees up!**  
 
@@ -66,7 +73,10 @@ Mpame with my bike
 Gary’s old Volvo  
 Stringing up cables to some of the huts with Les Westwood. Plugging in and firing up the generator for the first time [1981, I think]  
 The long-drop  
-Sharing the green tent with Geoff  
+
+Sharing the green tent with Geoff
+- Endlessly burning candles  
+
 Uncle Clive shooting the green mamba in the end hut  
 Opening the camp up - the shutters  
 Hermit crabs in the grass at night  

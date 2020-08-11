@@ -82,14 +82,15 @@ We spent a lot of time playing in and around the abandoned factory on the proper
 
 Paddock used to be the main factory for the Natal Tanning Extract Company Ltd but operations ceased there in the late 1960'. From their [website](http://www.nte.co.za/nte-history/):  
 
-`Another factory located at Paddock was opened in 1921 with a capacity of 300 tons per month  
+>
+> Another factory located at Paddock was opened in 1921 with a capacity of 300 tons per month  
+> 
+> in 1927, the Paddock factory was converted into a bark buying depot and in 1937, repurposed as an extract factory.  
+> 
+> With the increased demand for wattle extract during and after the war, the NTE board decided to expand its property division. In addition, NTE also controlled three wattle growing subsidiary companies, namely Murchison Plains Black Wattle Company, Alfredia Wattle Company and the Ihluku Wattle Company, which between them owned 6 250 ha, 83% of which was under wattle, all three supplying the Paddock factory.  
+> 
+> The Paddock factory closed in 1967  
 
-in 1927, the Paddock factory was converted into a bark buying depot and in 1937, repurposed as an extract factory.  
-
-With the increased demand for wattle extract during and after the war, the NTE board decided to expand its property division. In addition, NTE also controlled three wattle growing subsidiary companies, namely Murchison Plains Black Wattle Company, Alfredia Wattle Company and the Ihluku Wattle Company, which between them owned 6 250 ha, 83% of which was under wattle, all three supplying the Paddock factory.  
-
-The Paddock factory closed in 1967  
-`
 
 And we arrived in 1978!  
 
@@ -105,8 +106,14 @@ I remember finding some old fire extinguishers lying around, and emptying them! 
 
 ### Murchison  
 
-* Bikes  
-* Deidre’s first solo bike ride  
+**Bikes**  
+
+Here's a pic Deidre unearthed of me on my Suzuki TS50. Taken in the road outside House No. 2.  
+
+![The Lean Green Mean Machine!](assets/images/ed-on-bike.jpg)
+
+Deidre’s first solo bike ride  
+
 * The Camerons  
 * Andrew Cameron and the taxi driver  
 * YP at Murchison  
